@@ -1,0 +1,2 @@
+# premium-longarm-001-longarm-quilting-pantograph-an
+Forget the frustration of inconsistent tension and forgotten pantograph settings. This Notion log turns your longarm experiments into a repeatable recipe for perfect quilts every time.  Eliminate guesswork by recording tension settings for every fabric and pantograph combination. Instantly recall what worked for that tricky polyester backing or den
